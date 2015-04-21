@@ -1,0 +1,3 @@
+# Logos institucionales de la UPEL
+
+UNIVERSIDAD PEDAGÓGICA EXPERIMENTAL LIBERTADOR
